@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @liz45206
+- 👀 I’m interested in stocks, NFTs, cryptos, and real estate.
+- 🌱 I’m currently learning what platforms and brokerages I can use to help me.
+- 💞️ I’m looking to collaborate on learning resources.
+- 📫 You can reach me by sending a message whichever way github allows.
